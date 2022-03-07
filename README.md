@@ -1,1 +1,1 @@
-# privacypolicy-termsandconditions-for-calie
+# privacypolicy-termsandconditions-for-This_Memo
